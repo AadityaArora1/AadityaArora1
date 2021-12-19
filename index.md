@@ -1,5 +1,5 @@
 # Aaditya Arora
-
+![](/images/aaditya.jfif)
 ### Basic Portfolio
 ## Education
 - Btech in information technology (2020-2024)(SRMS CET BAREILLY)
